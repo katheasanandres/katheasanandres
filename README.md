@@ -14,6 +14,7 @@
 𖹭 Name: Kat/Kimjie  
 𖹭 Age: 19  
 𖹭 Fav Colors: Pink & Green  
+𖹭 Fav Mangas: Dunmeshi, The Promised Neverland, Oyasumi Punpun, MHA
 𖹭 Fav Games: Undertale, Deltarune, Stardew Valley, Minecraft, Franbow, BATIM  
 
 ❤︎ ─────────── ❤︎
