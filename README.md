@@ -11,7 +11,7 @@
 ❤︎ ─────────── ❤︎
 
 ## About Me (ᵔᗜᵔ)  
-𖹭 Name: Kathea San Andres
+𖹭 Name: Kathea San Andres <br>
 𖹭 Age: 19  
 𖹭 Fav Colors: Pink & Green  
 𖹭 Fav Games: Undertale, Deltarune, Stardew Valley, Minecraft, Franbow, BATIM  
