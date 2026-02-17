@@ -17,11 +17,3 @@
 𖹭 Fav Games: Undertale, Deltarune, Stardew Valley, Minecraft, Franbow, BATIM  
 𖹭 Fav Mangas: Dunmeshi, The Promised Neverland, Oyasumi Punpun, MHA
 
-❤︎ ─────────── ❤︎
-
-## Currently Learning ദ്ദി╥ ᴗ ╥)  
-𖹭 PHP  
-𖹭 Python  
-𖹭 JavaScript  
-𖹭 C  
-
