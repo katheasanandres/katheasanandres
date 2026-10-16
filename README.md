@@ -12,7 +12,7 @@
 
 ## About Me (ᵔᗜᵔ)  
 𖹭 Name: Kathea San Andres <br>
-𖹭 Age: 19  
+𖹭 Age: 20  
 𖹭 Fav Colors: Pink, Brown, Green, and Cream color!  
 𖹭 Fav Games: Undertale, Deltarune, Stardew Valley, Minecraft, Franbow, BATIM  
 𖹭 Fav Mangas: Dunmeshi, TPN , MHA, and WHA
