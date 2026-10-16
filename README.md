@@ -17,3 +17,6 @@
 𖹭 Fav Games: Undertale, Deltarune, Stardew Valley, Minecraft, Franbow, BATIM  
 𖹭 Fav Mangas: Dunmeshi, TPN , MHA, and WHA
 
+## Connect w/ me!  
+𖹭 Discord: @kikatrize
+𖹭 Instagram: @katheakim
