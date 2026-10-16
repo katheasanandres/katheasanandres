@@ -18,5 +18,5 @@
 𖹭 Fav Mangas: Dunmeshi, TPN , MHA, and WHA
 
 ## Connect w/ me!  
-𖹭 Discord: @kikatrize
+𖹭 Discord: @kikatrize <br>
 𖹭 Instagram: @katheakim
